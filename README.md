@@ -1,2 +1,0 @@
-# putri
-Putrizhalchilia
